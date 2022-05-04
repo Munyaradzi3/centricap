@@ -14,3 +14,12 @@ Screenshots
 
 
 ![Screenshot_20220503-233441_CentriCap](https://user-images.githubusercontent.com/62065166/166662376-4524cb00-0f60-41cd-b1b0-1a51c520f340.jpg)
+![Screenshot_20220503-233429_CentriCap](https://user-images.githubusercontent.com/62065166/166662485-4c7e3d1a-804e-400b-9336-b9bed066a5c7.jpg)
+
+
+
+![Screenshot_20220503-233405_CentriCap](https://user-images.githubusercontent.com/62065166/166662523-b6603e61-e79a-4d6b-adf3-cdb78fe1d45b.jpg)
+
+
+
+![Screenshot_20220503-233357_CentriCap](https://user-images.githubusercontent.com/62065166/166662564-4af376cc-90c0-4600-a4ea-6133dde6b6d0.jpg)
