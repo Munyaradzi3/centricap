@@ -8,3 +8,9 @@ Screenshots
 
 
 ![Screenshot_20220503-233603_CentriCap](https://user-images.githubusercontent.com/62065166/166662237-0c0af0dc-ae98-4c46-97d5-d83c6729bf39.jpg)
+
+
+![Screenshot_20220503-233455_CentriCap](https://user-images.githubusercontent.com/62065166/166662339-eb6e9e60-f8b9-4f97-b865-95ef2e025238.jpg)
+
+
+![Screenshot_20220503-233441_CentriCap](https://user-images.githubusercontent.com/62065166/166662376-4524cb00-0f60-41cd-b1b0-1a51c520f340.jpg)
